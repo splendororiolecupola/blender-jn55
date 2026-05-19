@@ -1,4 +1,4 @@
-# 
+# rare GIMP para PC addons es el mejor GIMP para PC addons con texto en trayectoria y efectos vectoriales. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
